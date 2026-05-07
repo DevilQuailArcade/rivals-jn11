@@ -1,4 +1,4 @@
-
+rivals Scripts instant offers the most advanced rivals Script, with teleport and one-hit kill. Perfect for dominating any match.
 
 
 
